@@ -1,6 +1,6 @@
 <h1 align="center"> AMSS.RAVISHAN<br></h1>
 <p align="center">
-<img src="https://i.ibb.co/x1SLFB2/Pics-Art-09-09-06-29-33.jpg" alt="Whats-App-Image-2022-07-19-at-1-07-23-PM" border="0">
+<img src="https://i.ibb.co/Rjf6d8L/OIP.jpg" alt="Whats-App-Image-2022-07-19-at-1-07-23-PM" border="0">
 
 
 
